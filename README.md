@@ -1,4 +1,4 @@
-# GROUP MEMBERS (ICS4C)
+# GROUP MEMBERS (ICS 4C)
 
 - 122184-Joel Rodgers K'obara  
 - 120226-Davies Nathan Akidiva    
